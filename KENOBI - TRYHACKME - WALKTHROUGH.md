@@ -1,4 +1,4 @@
-![[Pasted image 20260320202345.png|220]]
+![[OcA2KrK.gif]]
 
 
 ### Resumen Ejecutivo (The Overview)
