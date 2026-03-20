@@ -1,4 +1,4 @@
-![[OcA2KrK.gif]]
+![OcA2KrK.gif] 
 
 
 ### Resumen Ejecutivo (The Overview)
