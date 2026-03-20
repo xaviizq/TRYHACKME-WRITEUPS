@@ -1,4 +1,4 @@
-<img width="64" height="64" alt="image" src="https://github.com/user-attachments/assets/7d60b6b7-3cc9-4a80-abd0-e5c820dcae8e" />
+<img width="128" height="128" alt="image" src="https://github.com/user-attachments/assets/7d60b6b7-3cc9-4a80-abd0-e5c820dcae8e" />
 
 
 ### Resumen Ejecutivo (The Overview)
