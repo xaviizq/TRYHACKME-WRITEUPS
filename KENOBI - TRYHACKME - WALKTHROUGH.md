@@ -1,4 +1,4 @@
-![[Pasted image 20260320202345.png|220]]
+<img width="1068" height="656" alt="image" src="https://github.com/user-attachments/assets/7811c0a8-6856-453a-ba20-d1279ab931a3" />
 
 
 ### Resumen Ejecutivo (The Overview)
